@@ -19,6 +19,8 @@
 
 方法4：加入51视频微信扣扣粉丝群：https://51shipin.cc/?path=/qun.html 
 
+https://github.com/51sp1/51sp1/blob/main/51sp.md
+
 常见问题：
 -
 网址打不开？？？
